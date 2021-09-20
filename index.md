@@ -6,6 +6,8 @@ Gifting their loved ones living plants is also a symbol of good health and life 
 
 Along with a growing awareness to what can be grown in and around houses, a momentum is building up as people are coming together to share ideas with each other as healthy cooperation.
 
+Join our [Community Telegram Channel](https://t.me/kitchengardencommunity). 
+
 ## Inspiring Practical Stories 
 
 ### India 
