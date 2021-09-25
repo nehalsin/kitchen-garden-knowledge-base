@@ -21,3 +21,5 @@ Along with a growing awareness to what can be grown in and around houses, a mome
 - [Brahmi Kitchen Garden Pune](https://nehalsin.github.io/brahmi-kitchen-garden-pune/), India 
 
 ### Outside India
+
+## [Guidelines](https://nehalsin.github.io/guidelines/)
