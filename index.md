@@ -22,4 +22,4 @@ Along with a growing awareness to what can be grown in and around houses, a mome
 
 ### Outside India
 
-## [Guidelines](https://nehalsin.github.io/guidelines/)
+## [Voluntary Spirit Guidelines](https://nehalsin.github.io/voluntary-spirit-guidelines/)
