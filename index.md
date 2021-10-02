@@ -14,11 +14,11 @@ Along with a growing awareness to what can be grown in and around houses, a mome
 
 ### India 
 
-- [Nehal Wild Kitchen Garden](https://nehalsin.github.io/nehal-wild-kitchen-garden/), India
+- [Naisargik Kitchen Garden Dehradun](https://nehalsin.github.io/naisargik-kitchen-garden-dehradun/), India
 
 - [Alka Kitchen Garden NCR](https://nehalsin.github.io/alka-kitchen-garden-ncr/), India
 
-- [Brahmi Kitchen Garden Pune](https://nehalsin.github.io/brahmi-kitchen-garden-pune/), India 
+- [Babita Kitchen Garden Mumbai](https://nehalsin.github.io/babita-kitchen-garden-mumbai/), India 
 
 ### Outside India
 
