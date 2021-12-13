@@ -14,7 +14,7 @@ Along with a growing awareness to what can be grown in and around houses, a mome
 
 ### India 
 
-- [Naisargik Kitchen Garden Dehradun](https://nehalsin.github.io/naisargik-kitchen-garden-dehradun/), India
+- [Naisargik Kitchen Garden Uttarakhand](https://nehalsin.github.io/naisargik-kitchen-garden-uttarakhand/), India
 
 - [Amrit Kitchen Garden NCR](https://nehalsin.github.io/amrit-kitchen-garden-ncr/), India
 
